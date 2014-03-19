@@ -7,4 +7,4 @@ El maligno era otro de nombre desconocido
 
 Y era malo malo malo malismooooo 
 
-Lucho contra Larry Plotter
+Lucho contra Larry Plotter y larry pelecho.
