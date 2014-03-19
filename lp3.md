@@ -6,3 +6,5 @@ Pero resuta que luego no es tan maligno y es amigo de **Larry**.
 El maligno era otro de nombre desconocido
 
 Y era malo malo malo malismooooo 
+
+Lucho contra Larry Plotter
